@@ -7,7 +7,7 @@ Ian Marubayashi
 Cabey Deverill
 Lexi Davidson
 Caylie Royall
-Kenney Gatling
+Kenny Gatling
 
 Module Two Team Project Plan
 Chosen Senario: Top-Down
